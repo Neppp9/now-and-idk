@@ -1,1 +1,2 @@
-# now-and-idk
+Hai
+Mari maling ilmu
